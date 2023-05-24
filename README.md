@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Flutter, Dart, Firebase**
 
-- 📫 How to reach me **mabdurrehman95c@gmail.com**
+- 📫 How to reach me **abdman0095@gmail.com**
 
 - ⚡ Fun fact **by love I am a Creep...**
 
