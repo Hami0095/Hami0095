@@ -11,7 +11,6 @@
 
 - 📫 How to reach me **abdman0095@gmail.com**
 
-- ⚡ Fun fact **by love I am a Creep...**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
